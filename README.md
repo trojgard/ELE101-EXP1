@@ -1,2 +1,2 @@
 # ELE101-EXP1
-![semih](https://www.pinterest.com/pin/orangutan-driving-golf-car--30540103718267159/)
+![semih](71c5dfc9e534153b0c2c4c3dd124a65c.jpg)
